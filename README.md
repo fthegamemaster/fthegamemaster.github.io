@@ -1,2 +1,2 @@
 # fthegamemaster.github.io
-Game website
+This  Is the new bet unblocked game website that Has ever been made! Pls enjoy!_
